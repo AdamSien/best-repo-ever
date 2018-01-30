@@ -1,4 +1,4 @@
 # best-repo-ever
 Best one
 No najlepsze
-Mega suprrowe
+Mega chuj jebac suprwe
